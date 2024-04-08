@@ -1,0 +1,6 @@
+![Captura de tela de 2024-04-08 12-17-38](https://github.com/marcelocruzsilverio/exercicio-fixacao-interface/assets/101437808/f4a90b32-ef82-4a93-933b-7e81b251c7a6)
+![Captura de tela de 2024-04-08 12-17-49](https://github.com/marcelocruzsilverio/exercicio-fixacao-interface/assets/101437808/3b732d5d-3827-4a6b-bbd2-5fa17fc8c4f6)
+![Captura de tela de 2024-04-08 12-17-55](https://github.com/marcelocruzsilverio/exercicio-fixacao-interface/assets/101437808/873a7b2d-7830-4ac1-8433-bdfac2c240fd)
+![Captura de tela de 2024-04-08 12-18-42](https://github.com/marcelocruzsilverio/exercicio-fixacao-interface/assets/101437808/cbc5fefb-db35-408c-b4d2-310cf06a8d96)
+![Captura de tela de 2024-04-08 12-18-49](https://github.com/marcelocruzsilverio/exercicio-fixacao-interface/assets/101437808/8c368708-9dde-47e5-9459-2613fa3bd3a4)
+![Captura de tela de 2024-04-08 12-19-01](https://github.com/marcelocruzsilverio/exercicio-fixacao-interface/assets/101437808/e362beee-a2b3-4e8a-859e-e860c103f287)
